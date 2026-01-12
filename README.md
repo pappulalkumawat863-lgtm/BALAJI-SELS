@@ -1,2 +1,0 @@
-# BALAJI-SELS
-Electronic market 
